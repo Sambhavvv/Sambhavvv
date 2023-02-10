@@ -7,6 +7,8 @@
 ## About me
 
 Hi, I'm Sambhav. You might recognize me as a decent human being.
+- 📫 How to reach me: Don't
+- 
 | Rank | THING-TO-RANK |
 |-----:|---------------|
 |     1|   Football    |
