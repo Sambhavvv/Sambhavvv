@@ -7,8 +7,8 @@
 ## About me:
 
 Hi, I'm Sambhav Bhansali. 
-You might recognize me as a decent human being.
-- 📫 How to reach me: Don't
+I am the only one who gets my jokes. I’m so hilarious.
+- 📫 How to reach me: sambhavbhansali10@gmail.com
 - 
 | Rank | THING-TO-RANK |
 |-----:|---------------|
