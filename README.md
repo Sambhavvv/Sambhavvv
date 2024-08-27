@@ -8,7 +8,7 @@ Hi, I'm Sambhav Bhansali.
 I am the only one who gets my jokes. I’m so hilarious.
 - 📫 How to reach me: sambhavbhansali10@gmail.com
 
-| Rank | THING-TO-RANK |
+| Rank | THINGS-TO-RANK |
 |-----:|---------------|
 |     1|   Football    |
 |     2|    Tech       |
